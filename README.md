@@ -1,0 +1,1 @@
+# portal-stp2k-smkn1klaten
